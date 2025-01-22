@@ -1,1 +1,1 @@
-# podstawy-informatyki nie jebu żabu
+# podstawy-informatyki Mykhailo Zlobin 1A
