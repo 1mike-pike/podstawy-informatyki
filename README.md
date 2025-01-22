@@ -1,1 +1,1 @@
-# podstawy-informatyki
+# podstawy-informatyki nie jebu żabu
